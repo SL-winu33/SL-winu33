@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **winujayasooriya@gmail.com**
 
-- ⚡ Fun fact **call me as winu**
+- ⚡ Fun fact **call me as Winu**
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=sl-winu33" alt="sl-winu33" /></a> </p>
 
